@@ -1,0 +1,1 @@
+Autor ptojektu: Kwasniewski Pawlik Gmerek
